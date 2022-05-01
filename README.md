@@ -1,5 +1,5 @@
 I do stuffs.
 
-https://madekuji.github.io
+https://mdkj.dev
 
 Madekuji-san!#1337
